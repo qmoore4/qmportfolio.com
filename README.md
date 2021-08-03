@@ -1,1 +1,0 @@
-# qmportfolio.com
